@@ -1,4 +1,4 @@
-# Huge List of Analyzed German .DE domains (200,000+)
+# Huge List of Analyzed German .DE Domains (200,000+)
 
 Top 200,000 .DE Domains! 
 
