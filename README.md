@@ -2,17 +2,17 @@
 
 I analyzed about 200,000 German .DE domains. 
 
-I'm posting two demo lists here. 
+Examples (demo):
 
-https://dolist.guru/demo-list.rar (2K domains from Main list)
+https://dolist.guru/demo-list.rar (2K analyzed domains from Main list)
 
-https://dolist.guru/demo-list-2.rar (10K domains from Second bonus list)
+https://dolist.guru/demo-list-2.rar (10K analyzed domains from Second bonus list)
 
-The full version can be purchased here. 
+The full version can be purchased here:
 
 https://dolist.guru
 
-If you don't want to download the archives, but want to quickly see what it looks like, you can watch a very short video here.
+If you don't want to download the archives, but want to quickly see what it looks like, you can watch a very short video here:
 
 https://www.youtube.com/watch?v=ZN--Tj_nWpY
 
