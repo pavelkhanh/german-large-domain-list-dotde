@@ -41,9 +41,3 @@ https://dolist.guru/demo-list-2.rar (10K analyzed domains from Second bonus list
 The full version can be purchased here:
 
 https://dolist.guru
-
-If you don't want to download the archives, but want to quickly see what it looks like, you can watch a very short video here:
-
-https://www.youtube.com/watch?v=ZN--Tj_nWpY
-
-https://www.youtube.com/watch?v=IkrCChtP8HA
