@@ -1,6 +1,6 @@
 # Huge List of Analyzed German .DE Domains (200,000+)
 
-I analyzed about 200,000 German .DE domains. And I'm selling this list. But I also give a free demo (12,000 domains).
+I analyzed ~ 200,000 German .DE domains. And I'm selling this list. But I also give a free demo (12,000 domains).
 
 What does "Analyzed" mean?
 
