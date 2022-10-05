@@ -3,8 +3,11 @@
 Top 200,000 .DE Domains! 
 
 Main List: 66K Domains have SEO metrics, Traffic and Categorization. 
+
 First bonus list: 16K Domains have SEO metrics (Authority Score 29+) and Categorization. 
+
 Second bonus list: 128K Domains have only SEO metrics. 
+
 This is probably the Most Detailed List of German Domain Names!
 
 I am posting here two demo lists containing 12,000 domains. 
